@@ -1,1 +1,1 @@
-# HyperVerge
+# HyperVerge Academy
